@@ -1,2 +1,3 @@
-# HandbellNotesJan2016
-Member Notes for the Handbell Musicians of America, January 2016.
+# Virtual handbells: Using social media and the web
+
+<a href="http://files.rootwork.org/hma/member-notes-2016-01/">Read it online.</a>
